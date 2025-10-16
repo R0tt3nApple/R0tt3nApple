@@ -1,2 +1,1 @@
-ARRRRRGGGGGGGHHHHHHHHGSDEHKA
-XM,CVFGTE
+<div class="tenor-gif-embed" data-postid="1895640277553101283" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/dont-die-dying-is-unsigma-sigma-unsigma-dying-gif-1895640277553101283">Dont Die Dying Is Unsigma GIF</a>from <a href="https://tenor.com/search/dont+die-gifs">Dont Die GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
