@@ -1,1 +1,1 @@
-![Zuku]([https://media.giphy.com/media/your-gif-link.gif](https://tenor.com/view/izuku-midoriya-izuku-deku-mha-bnha-gif-15724992276694072607))
+![cat pixel art GIF by hoppip](https://github.com/user-attachments/assets/ad495aaa-fa1c-448b-b3a9-cea6c13f10fa)
