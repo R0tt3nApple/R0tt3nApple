@@ -5,4 +5,4 @@
 
 <p align="center">
   
- ⠀⠀    ⠀ ⠀   [𝗔](https://macncheese.atabook.org/)𝗍ᥲ⠀  .⠀  [𝗣](https://en.pronouns.page/@cclover)rᥒs.ᥴᥴ⠀  .⠀  [𝗚](https://guns.lol/cl0v3r)ᥙᥒs
+ ⠀⠀    ⠀ ⠀               [𝐀](https://macncheese.atabook.org/)ta⠀  ♡⠀  [𝐏](https://en.pronouns.page/@cclover)rns⠀  ♡⠀  [𝐆](https://guns.lol/cl0v3r)uns
