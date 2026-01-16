@@ -6,4 +6,4 @@
 
 <p align="center">
   
- ⠀⠀    ⠀ ⠀               [𝐀](https://macncheese.atabook.org/)ta⠀  ♡⠀  [𝐏](https://en.pronouns.page/@cclover)rns.cc⠀  ♡⠀  [𝐆](https://guns.lol/cl0v3r)uns
+ ⠀⠀    ⠀ ⠀               [𝐀](https://macncheese.atabook.org/)ta⠀  ♡⠀  [𝐏](https://en.pronouns.page/@cclover)rns.cc⠀  ♡⠀  [𝐆](https://guns.lol/cl0v3r)uns⠀  ♡⠀  [𝐒](https://spacehey.com/profile?id=4392806)paceHey
