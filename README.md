@@ -1,10 +1,13 @@
 <div align="center">
-  
+
+ ![0147-kirbywalk](https://github.com/user-attachments/assets/a84a549c-d47e-42f6-86ec-10e10255ccc6) ![blinkiesCafe-zx](https://github.com/user-attachments/assets/222ab14f-83a6-4131-bccd-f21d34f7db8a) ![blinkiesCafe-QK](https://github.com/user-attachments/assets/ba988da7-4996-45a8-9f38-9d326d010cf3) ![0145-kirbysquish](https://github.com/user-attachments/assets/f6ce8248-11a9-44bc-b3b8-055fe279ba38)
+
+
 ![a5d9fe6123930689196028c4f991f79c](https://github.com/user-attachments/assets/28cd45cd-9230-4898-9ee4-b06647579495)
 
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=R0tt3nApple&label=🍥&color=efd2cb&base=1495" />
+<img src="https://komarev.com/ghpvc/?username=R0tt3nApple&label=🍥&color=efd2cb&base=1495" />
 </p>
 
   
