@@ -8,5 +8,6 @@
 </p>
 
   
-[𝐀](https://macncheese.atabook.org/)ta⠀  ♡⠀  [𝐏](https://en.pronouns.page/@cclover)rns.cc⠀  ♡⠀  [𝐆](https://guns.lol/cl0v3r)uns⠀  ♡⠀  [𝐒](https://spacehey.com/profile?id=4392806)paceHey
+<img width="20" height="20" alt="27c3c217" src="https://github.com/user-attachments/assets/37ca6a10-b753-4357-b3b7-0fd81e9874d8" />ㅤ[𝐀](https://macncheese.atabook.org/)taㅤ![6ebaaaad](https://github.com/user-attachments/assets/a3477bba-88b5-417f-baef-70d1c0cec3ac)ㅤ[𝐏](https://en.pronouns.page/@cclover)rns.ccㅤ![6ebaaaad](https://github.com/user-attachments/assets/a3477bba-88b5-417f-baef-70d1c0cec3ac)ㅤ[𝐆](https://guns.lol/cl0v3r)unsㅤ![6ebaaaad](https://github.com/user-attachments/assets/a3477bba-88b5-417f-baef-70d1c0cec3ac)ㅤ[𝐒](https://spacehey.com/profile?id=4392806)paceHeyㅤ<img width="20" height="20" alt="4b45aeb6" src="https://github.com/user-attachments/assets/a680b521-1399-4632-87df-9f075f0be27b" />
+
 
