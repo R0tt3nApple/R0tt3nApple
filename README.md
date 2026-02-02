@@ -1,4 +1,5 @@
-<img width="2048" height="2048" alt="Tak berjudul396_20251222074017" src="https://github.com/user-attachments/assets/640b3b91-1437-41af-bb33-4b229aa32aab" />
+![a5d9fe6123930689196028c4f991f79c](https://github.com/user-attachments/assets/28cd45cd-9230-4898-9ee4-b06647579495)
+
 
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=R0tt3nApple&label=🍥&color=efd2cb&base=1495" />
